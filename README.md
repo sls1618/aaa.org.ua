@@ -1,1 +1,1 @@
-# aaa.org.ua
+# ama.org.ua
